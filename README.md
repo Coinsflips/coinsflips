@@ -1,2 +1,1 @@
-<img width="720" height="1600" alt="25719" src="https://github.com/user-attachments/assets/363fadff-3ef4-41af-b554-b1dd8017e468" />
-imagine being this much jealous of me to the point u steal my username and call me a retarded you people have nothing to do then be a parasocial assholes lmao, I know who you are and I wont hesitate to call u out but oh well, do you genuinely have nothing to do? this shit is so fucking funny LMAOOO
+lets go I won I WON anyway hi this is gonna be remake soon my name is chance I'm the goat
