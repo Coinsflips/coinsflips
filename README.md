@@ -1,4 +1,5 @@
-art not by me
+<p align="center">art not by me
+  
 <img width="1406" height="1997" alt="25748" src="https://github.com/user-attachments/assets/387f0718-23cd-44b7-b588-1ffcc929110b" />
 
 <p align="center"> I'm so Kyut look at me I'm the cutest chance ever
