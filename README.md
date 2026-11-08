@@ -1,4 +1,13 @@
+<div align="center"> 
+  
+![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+gamblers!&extraCount=2&color=ffffff&labelColor=ffffff)
+
 <p align="center">art not by me
+
+
+
+<img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
+
   
 <img width="1406" height="1997" alt="25748" src="https://github.com/user-attachments/assets/387f0718-23cd-44b7-b588-1ffcc929110b" />
 
