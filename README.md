@@ -15,4 +15,8 @@ I'm happy with my life thankkkss hit me up whenever u want I'm up for friends!!
 <I loveee my cutest crowbunny and the sweetest Mafioso ever #lovedat 🍀🐇 <img width="30" alt="26472" src="https://github.com/user-attachments/assets/b2801ed7-1d3d-4faa-8e3a-32f68ab1e4cd" />
  3 , I loveee my oomfs/p omg hi maddy #sleepmaxxing, hi clovi, hi jeffrey/Elliot, hi itrapped/Berry, hi Markus, hi Kat!! :-3 , hi soda, hi Jax!, hi vanta, hi Zach #hackerluckduo , hi Kozzui, hi Matt, hi Zack! hi dyo and Salem #BKPT , and more oomfs (+) luv u guys!! /p  
 
+<img width="736" alt="26473" src="https://github.com/user-attachments/assets/94275b56-eb20-4aec-8157-45c22965e830" />
+
+
+
 ***
