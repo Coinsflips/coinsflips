@@ -17,6 +17,6 @@ I'm happy with my life thankkkss hit me up whenever u want I'm up for friends!!
 
 <img width="736" alt="26473" src="https://github.com/user-attachments/assets/94275b56-eb20-4aec-8157-45c22965e830" />
 
-
+while they're out parting btw ahhhh almost almost.... 
 
 ***
