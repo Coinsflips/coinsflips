@@ -9,11 +9,11 @@ $\color{#959BA7}\textsf { ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr�
 
 <div align="center">
 
-$\color{#959BA7}\textsf { ₊　txt　 ͜͜𑁯◞⑅　txt }$　![](https://64.media.tumblr.com/97b7b564add43b9bb279c5b572ea8b20/bc21cfb335f0f356-1b/s75x75_c1/a3f98f4033f7f3776a4ed886982c26d62b795055.gifv)⠀$\color{#959BA7}\textsf {  ׄ͜ ୨𝄂𝄚𝅦𝄞　𓈒ᣟ݂　 ͡ ݁꒱　txt　txt　𓏼 ᛝ 。}$
+$\color{#959BA7}\textsf { ₊　txt　 ͜͜𑁯◞⑅　txt }$　 ![](https://64.media.tumblr.com/97b7b564add43b9bb279c5b572ea8b20/bc21cfb335f0f356-1b/s75x75_c1/a3f98f4033f7f3776a4ed886982c26d62b795055.gifv)⠀ $\color{#959BA7}\textsf {  ׄ͜ ୨𝄂𝄚𝅦𝄞　𓈒ᣟ݂　 ͡ ݁꒱　txt　txt　𓏼 ᛝ 。}$
 
 <img src="https://64.media.tumblr.com/c54db71283ffdf5b05fd8d632095334d/93af1eb458f816a8-5c/s1280x1920/7f22dfe3b612034e0adea22dd531df8305a6a4f7.pnj">
 
-$\color{#959BA7}\textsf { ◜ ͜ །　info}$　![](https://64.media.tumblr.com/6905024411fc814c44bbc6eba03f53f7/94e40ae192c2ff4d-91/s75x75_c1/c53baa359d81b8e76e9d8fb2215e8b2c388e202a.gifv)　$\color{#959BA7}\textsf { info　ꔫ◞}$ ![](https://64.media.tumblr.com/e746cf4355793130455c0a96aa96b35e/2c26ab6ddd76e331-12/s75x75_c1/25f73d7ca281db155f0b7ef6d5fcef06545d8cf9.gifv)　$\color{#959BA7}\textsf { info　᎖　info　⌓⌓ ⊂⊱　info}$　
+$\color{#959BA7}\textsf { ◜ ͜ །　info}$　  ![](https://64.media.tumblr.com/6905024411fc814c44bbc6eba03f53f7/94e40ae192c2ff4d-91/s75x75_c1/c53baa359d81b8e76e9d8fb2215e8b2c388e202a.gifv)　  $\color{#959BA7}\textsf { info　ꔫ◞}$ ![](https://64.media.tumblr.com/e746cf4355793130455c0a96aa96b35e/2c26ab6ddd76e331-12/s75x75_c1/25f73d7ca281db155f0b7ef6d5fcef06545d8cf9.gifv)　$\color{#959BA7}\textsf { info　᎖　info　⌓⌓ ⊂⊱　info}$　
 
 <div align="center">
 
