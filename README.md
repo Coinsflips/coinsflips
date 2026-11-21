@@ -25,7 +25,7 @@ $\color{#959BA7}\textsf { chance heavy kin + c'link　᎖　c+h freely! 　⚞ �
 
 <div align="center">
   
-<img width="19" src="https://github.com/user-attachments/assets/61372fbd-7c80-4be2-b4e1-722fa7ced8b0" />$\color{#959BA7}\textsf  ׅ { ᥥᥥ ݂   ཾ  ilm partner ꒱  ׅ⑅ ۫  　꒰　my cutest crowbunny ever!　꒱ 。}$
+<img width="19" src="https://github.com/user-attachments/assets/61372fbd-7c80-4be2-b4e1-722fa7ced8b0" />$\color{#959BA7}\textsf   { ⑅ᐢ  ݁   ⁺  ilm partner ꒱  ׅ⑅ ۫  　꒰　my cutest crowbunny ever!　꒱ 。}$
 
 <img src="https://64.media.tumblr.com/bdf4e235adc4e427d9a27681164a29b8/93af1eb458f816a8-12/s2048x3072/d787d9f178f99a4bf62d9cd2c35356e2a3d07e22.pnj">
 
