@@ -1,7 +1,7 @@
 <div align="center"> <img src="https://64.media.tumblr.com/c8f86914132714c90d687150fe8e9442/93af1eb458f816a8-ff/s2048x3072/cc6f0df22c4d434accc29ed485fe7c919d100bdf.pnj">
   
 
-<a href="https://jackpot.atabook.org/"><img src="https://64.media.tumblr.com/0c95c22b446086c218c28b52dece4e73/6cb7e690286b8187-98/s400x600/77805a3d5cd9b0c13ab2c5b5a53058061f4378d2.pnj" ></a> <a href="https://fluffle.cc/chance"><img src="https://64.media.tumblr.com/9ab41ed2c3434766e7a972c909921d96/6cb7e690286b8187-f8/s400x600/8bbdddcc4603e2a5d3e387f9eeeeefbcf93db982.pnj" ></a>
+<a href="https://jackpot.atabook.org/"><img width="300" src="https://github.com/user-attachments/assets/f6295cdf-dff6-4980-8e3c-e8ec1e3ddd63" /></a> <a href="https://fluffle.cc/chance"><img width="300" src="https://github.com/user-attachments/assets/68c4a5b8-55b2-42b0-a570-19a778398d8f" /></a>
 
 ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ <img width="19" alt="26518" src="https://github.com/user-attachments/assets/f1d1b7d6-1248-433a-bc05-76e2f33a6405" />
 <div align="center">
