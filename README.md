@@ -17,11 +17,15 @@ $\color{#959BA7}\textsf { ₊ he　 ͜͜𑁯◞⑅　they }$　 ![](https://64.m
 
 <img src="https://64.media.tumblr.com/c54db71283ffdf5b05fd8d632095334d/93af1eb458f816a8-5c/s1280x1920/7f22dfe3b612034e0adea22dd531df8305a6a4f7.pnj">
 
-$\color{#959BA7}\textsf { ◜ ͜ །　taken }$　   ![](https://64.media.tumblr.com/6905024411fc814c44bbc6eba03f53f7/94e40ae192c2ff4d-91/s75x75_c1/c53baa359d81b8e76e9d8fb2215e8b2c388e202a.gifv)　    $\color{#959BA7}\textsf { 06 14 ♡　ꔫ◞}$    ![](https://64.media.tumblr.com/e746cf4355793130455c0a96aa96b35e/2c26ab6ddd76e331-12/s75x75_c1/25f73d7ca281db155f0b7ef6d5fcef06545d8cf9.gifv)　  $\color{#959BA7}\textsf { chance heavy kin + c'link　᎖　c+h freely! 　⚞ 𓏫 ִ⑅ ⁠۫ 𓈒 　im up for friends! }$　
+$\color{#959BA7}\textsf { ◜ ͜ །　taken }$　   ![](https://64.media.tumblr.com/6905024411fc814c44bbc6eba03f53f7/94e40ae192c2ff4d-91/s75x75_c1/c53baa359d81b8e76e9d8fb2215e8b2c388e202a.gifv)　    $\color{#959BA7}\textsf { 06 14 ♡　ꔫ◞}$    ![](https://64.media.tumblr.com/e746cf4355793130455c0a96aa96b35e/2c26ab6ddd76e331-12/s75x75_c1/25f73d7ca281db155f0b7ef6d5fcef06545d8cf9.gifv)　  
 
 <div align="center">
   
-<img width="19" src="https://github.com/user-attachments/assets/61372fbd-7c80-4be2-b4e1-722fa7ced8b0" />$\color{#959BA7}\textsf { ilm partner ꒱  ׅ⑅ ۫  　꒰　my cutest crowbunny ever!　꒱ 。}$
+$\color{#959BA7}\textsf { chance heavy kin + c'link　᎖　c+h freely! 　⚞ 𓏫 ִ⑅ ⁠۫ 𓈒 　im up for friends! }$　
+
+<div align="center">
+  
+<img width="19" src="https://github.com/user-attachments/assets/61372fbd-7c80-4be2-b4e1-722fa7ced8b0" />$\color{#959BA7}\textsf  ׅ { ᥥᥥ ݂   ཾ  ilm partner ꒱  ׅ⑅ ۫  　꒰　my cutest crowbunny ever!　꒱ 。}$
 
 <img src="https://64.media.tumblr.com/bdf4e235adc4e427d9a27681164a29b8/93af1eb458f816a8-12/s2048x3072/d787d9f178f99a4bf62d9cd2c35356e2a3d07e22.pnj">
 
