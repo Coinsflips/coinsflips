@@ -3,7 +3,7 @@
 
 <a href="https://jackpot.atabook.org/"><img src="https://64.media.tumblr.com/0c95c22b446086c218c28b52dece4e73/6cb7e690286b8187-98/s400x600/77805a3d5cd9b0c13ab2c5b5a53058061f4378d2.pnj" ></a> <a href="https://fluffle.cc/chance"><img src="https://64.media.tumblr.com/9ab41ed2c3434766e7a972c909921d96/6cb7e690286b8187-f8/s400x600/8bbdddcc4603e2a5d3e387f9eeeeefbcf93db982.pnj" ></a>
 
-ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ ![](https://64.media.tumblr.com/19574dffb41109250f74b74af9e5b3de/94e40ae192c2ff4d-1c/s75x75_c1/a16a7b2f2111166ee0117dcf967be4b2827fa3d4.gifv) 
+ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ <img width="10" alt="26518" src="https://github.com/user-attachments/assets/f1d1b7d6-1248-433a-bc05-76e2f33a6405" />
 <div align="center">
   
 ₊　txt　𑁨ׁ 𓈒ℓ ͜͝⠀　txt　![](https://64.media.tumblr.com/97b7b564add43b9bb279c5b572ea8b20/bc21cfb335f0f356-1b/s75x75_c1/a3f98f4033f7f3776a4ed886982c26d62b795055.gifv)⠀ ׄ͜ ୨𝄂𝄚𝅦𝄞　𓈒ᣟ݂　 ͡ ݁꒱　txt　txt　𓏼 ᛝ 。
