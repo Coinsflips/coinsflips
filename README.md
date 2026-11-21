@@ -3,7 +3,7 @@
 
 <a href="https://jackpot.atabook.org/"><img width="300" src="https://github.com/user-attachments/assets/f6295cdf-dff6-4980-8e3c-e8ec1e3ddd63" /></a> <a href="https://fluffle.cc/chance"><img width="300" src="https://github.com/user-attachments/assets/68c4a5b8-55b2-42b0-a570-19a778398d8f" /></a>
 
-ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ <img width="19" alt="26518" src="https://github.com/user-attachments/assets/f1d1b7d6-1248-433a-bc05-76e2f33a6405" />
+$\color{#D8EAEE}\textsf {ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ}$ <img width="19" alt="26518" src="https://github.com/user-attachments/assets/f1d1b7d6-1248-433a-bc05-76e2f33a6405" />
 <div align="center">
   
 ₊　txt　𑁨ׁ 𓈒ℓ ͜͝⠀　txt　![](https://64.media.tumblr.com/97b7b564add43b9bb279c5b572ea8b20/bc21cfb335f0f356-1b/s75x75_c1/a3f98f4033f7f3776a4ed886982c26d62b795055.gifv)⠀ ׄ͜ ୨𝄂𝄚𝅦𝄞　𓈒ᣟ݂　 ͡ ݁꒱　txt　txt　𓏼 ᛝ 。
