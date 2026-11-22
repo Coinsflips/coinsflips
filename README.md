@@ -27,6 +27,15 @@ $\color{#959BA7}\textsf { chance heavy kin + c'link　᎖　c+h freely! 　⚞ �
   
 <img width="19" src="https://github.com/user-attachments/assets/61372fbd-7c80-4be2-b4e1-722fa7ced8b0" />$\color{#959BA7}\textsf   { ⑅ᐢ  ݁   ⁺  ilm partner ꒱  ׅ⑅ ۫  　꒰　my cutest crowbunny ever!　꒱ 。}$
 
+
+<details closed>
+  <summary> ${{\color{#959BA7} titles! }}$</summary>
+   <a href="https://github.com/casinotown"> casinotown </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/pt-icon"> pt-icon </a> , <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> , <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> , <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/charactersofpt"> charactersofpt </a> , <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> , 
+<a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/style-town"> style-town </a> , <a href="https://github.com/pt-loveforfictional"> pt-loveforfictional </a> , <a href="https://github.com/ship-town"> ship-town </a> , <a href="https://github.com/cosplaytown"> cosplaytown </a> , <a href="https://github.com/pt-heavyfictkin"> heavyfictkin </a> , <a href="https://github.com/Ponytowns-rewards"> ponytowns-rewards </a> , <a href="https://github.com/choco-town"> choco-town </a> , <a href="https://github.com/music-town"> music-town </a> , <a href="https://github.com/kaotown"> kaotown </a>
+</details>
+
+
+
 <img src="https://64.media.tumblr.com/bdf4e235adc4e427d9a27681164a29b8/93af1eb458f816a8-12/s2048x3072/d787d9f178f99a4bf62d9cd2c35356e2a3d07e22.pnj">
 
 layout made by [D.O.M.!](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD) THANK OOMF #sleepmaxxing
