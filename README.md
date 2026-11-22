@@ -45,4 +45,13 @@ some of them still has my old username @gamblersi
 
 <img src="https://64.media.tumblr.com/bdf4e235adc4e427d9a27681164a29b8/93af1eb458f816a8-12/s2048x3072/d787d9f178f99a4bf62d9cd2c35356e2a3d07e22.pnj">
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6F6F91&bar_color_cover=false">
+  </a>
+</p>
+
+
+
+
 layout made by [D.O.M.!](https://github.com/DYNAMIC-OPERATIVE-MOTHERBOARD) THANK OOMF #sleepmaxxing
