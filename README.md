@@ -6,7 +6,7 @@
 <div align="center"
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Indie+Flower&duration=3500&pause=890&color=6C6C81&center=true&vCenter=true&width=435&lines=Ich+sterbe+in+dir.;Dein+herz+in+mir;Hieeeeeer;Krieger+wife+wir;Besiegen+die+wet+und+verier'n" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Indie+Flower&duration=3500&pause=890&color=BAE0E1&center=true&vCenter=true&width=435&lines=Ich+sterbe+in+dir.;Dein+herz+in+mir;Hieeeeeer;Krieger+wife+wir;Besiegen+die+wet+und+verier'n" alt="Typing SVG" /></a>
 
 
 $\color{#959BA7}\textsf { ᥥᲘ ּ⑅݂　cհαn͟c͟ҽ　₎𓐇　Clo᥎ᥱr　♡ᧆ }$　![](https://64.media.tumblr.com/19574dffb41109250f74b74af9e5b3de/94e40ae192c2ff4d-1c/s75x75_c1/a16a7b2f2111166ee0117dcf967be4b2827fa3d4.gifv) 
@@ -29,7 +29,7 @@ $\color{#959BA7}\textsf { chance heavy kin + c'link　᎖　c+h freely! 　⚞ �
 
 
 <details closed>
-  <summary> ${{\color{#959BA7} titles! }}$</summary>
+  <summary> ${{\color{#BAE0E1} titles! }}$</summary>
    <a href="https://github.com/casinotown"> casinotown </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/pt-icon"> pt-icon </a> , <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> , <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> , <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/charactersofpt"> charactersofpt </a> , <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> , 
 <a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/style-town"> style-town </a> , <a href="https://github.com/pt-loveforfictional"> pt-loveforfictional </a> , <a href="https://github.com/ship-town"> ship-town </a> , <a href="https://github.com/cosplaytown"> cosplaytown </a> , <a href="https://github.com/pt-heavyfictkin"> heavyfictkin </a> , <a href="https://github.com/Ponytowns-rewards"> ponytowns-rewards </a> , <a href="https://github.com/choco-town"> choco-town </a> , <a href="https://github.com/music-town"> music-town </a> , <a href="https://github.com/kaotown"> kaotown </a>
 </details>
